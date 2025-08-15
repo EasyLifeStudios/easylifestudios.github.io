@@ -1,1 +1,1 @@
-# easylifestudios.github.io
+Welcome to EasyLifeStudio. Have fun!
